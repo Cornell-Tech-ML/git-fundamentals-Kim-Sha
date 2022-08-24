@@ -11,3 +11,6 @@ The steady guiding hand of Lynn Jurich has much to do with the company’s succe
 During Sunrun’s infancy, Jurich landed one of her first customers standing next to a giant pumpkin at the Yolo County Fair in Sacramento. Intending to discuss her product with local homeowners, she found herself preaching to a sea of averted gazes. The few that paid attention seemed to do so just to shoot her down. But when she finally persuaded an owner of a trucking company to try solar, she realized the value of famer’s markets and county fairs. Here, she could receive quick and direct feedback, providing rapid learning cycles for her to improve her business. Indeed, Jurich would be the first to point to those experiences as being formative in the development of Sunrun.
 
 Today, Sunrun is no longer a scrappy startup experimenting with a disruptive business model. Lynn Jurich was among the first to make solar energy accessible to the masses, and that has fueled the company’s growth so far. After all, she wasn’t in the business of technologically disrupting an industry – she just wanted to change our very conception of it.
+
+
+a;sljqcoiwejaopwiejt[qowj[oajcoij]]
